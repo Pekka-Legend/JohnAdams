@@ -1,1 +1,1 @@
-Project about a campaign that John Adams should be president
+Campaign that John Adams should be president
